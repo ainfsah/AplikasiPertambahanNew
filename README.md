@@ -1,5 +1,5 @@
 # Aplikasi Pertambahan  
-**Latihan 1 - Nama Anda**
+**Latihan 1 - Siti Aisyah nor Fitriani - 2210010043**
 
 ---
 
